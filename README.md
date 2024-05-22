@@ -1,4 +1,4 @@
-## Tudo deles nada nosso, daí em diante só regresso sem sucesso 👋
+## Tudo deles nada nosso, daí em diante só regresso sem sucesso 🙌
 
 My name is Mário, i from lajedo de Pai Mateus em cabaceiras.
 - Estudo na Alura
